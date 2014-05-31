@@ -28,3 +28,6 @@ Directions
  2. Make the Red Hot Tahini: Simply blend everything up in a little blender until smooth. A Magic Bullet works perfectly. Add water by the tablespoon to thin as needed. Taste for salt and spiciness.
  3. Make the Tomato Parsley Salad: Toss all ingredients together in a medium mixing bowl. Taste for pepper and vinegar.
  4. Assemble: Place greens and rice side by side in a large bowl. Top with black-eyed peas. Drizzle with sauce and top with the tomato salad. Serve immediately and prosper!
+
+Originally from
+  http://www.theppk.com/2012/12/hoppin-john-bowl-with-red-hot-tahini/
