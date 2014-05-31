@@ -1,4 +1,8 @@
-Ingredients:
+Quinoa with pesto
+=========
+
+Ingredients
+----------
  * 1 cup quinoa, rinsed
  * 2 cups water or vegetable broth
  * large handful fresh spinach
@@ -9,6 +13,7 @@ Ingredients:
  * A few chopped cherry tomatoes
 
 Directions
- # Simmer quinoa in vegetable broth or water, covered, for 10-12 minutes, until quinoa is almost cooked.
- # Fold in fresh spinach and heat for 3-4 more minutes, until spinach has wilted and quinoa is cooked through.
- # Remove from heat. Stir in pesto, drizzle with lime juice and season well with salt and pepper to taste.
+----------
+ 1. Simmer quinoa in vegetable broth or water, covered, for 10-12 minutes, until quinoa is almost cooked.
+ 2. Fold in fresh spinach and heat for 3-4 more minutes, until spinach has wilted and quinoa is cooked through.
+ 3. Remove from heat. Stir in pesto, drizzle with lime juice and season well with salt and pepper to taste.

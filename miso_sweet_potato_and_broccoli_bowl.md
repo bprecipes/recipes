@@ -1,4 +1,8 @@
-For the bowl
+Miso sweet potato and broccoli bowl
+===========
+
+Ingredients
+----------
  * 1 cup dried rice or another cooking grain of your choice
  * 1 to 2 sweet potatoes (about 1.5 pounds)
  * 1 large bundle broccoli (about 1 pound)
@@ -9,6 +13,7 @@ For the bowl
  * 1 teaspoon black sesame seeds
 
 For the miso-sesame dressing
+----------
  * 1 tablespoon minced fresh ginger
  * 1 small garlic clove, minced
  * 2 tablespoons white miso (the mildest kind)
@@ -19,11 +24,13 @@ For the miso-sesame dressing
  * 2 tablespoons olive oil
 
 Directions
- # Heat oven to 400 degrees. Place rice or grain and cooking liquid in a rice cooker or on the stove. Cook according to package directions.
- # Peel sweet potatoes and cut into 1-inch cubes. Cut tops off broccoli and separate into bite-sized florets. If your broccoli stems feel especially woody, I like to peel them (with the same vegetable peeler), then cut them into 1/2- to 1-inch segments.
- # Coat one large or two smaller trays with a thin slick of olive oil. Layer sweet potatoes on tray(s) and sprinkle with salt and pepper. Roast for 20 minutes, until browning underneath. Flip and toss chunks around, then add broccoli to the tray(s), season again with salt and pepper, and roast for another 10 to 20 minutes, until broccoli is lightly charred at edges and sweet potato is fully bronzed and tender. Toss chunks around one more time if it looks like they’re cooking unevenly.
- # In a small skillet, toast black and white sesame seeds until fragrant. (You can do this in the oven if using an oven-proof skillet.) Let cool.
- # While vegetables roast, prepare sesame-miso dressing: Combine everything in a blender and run until smooth, scraping down sides once. Taste and adjust ingredients if needed, but try to resist adding more honey if it tastes salty, as that extra pop of saltiness is exactly what I think sweet potato needs.
- # Assemble bowls: Scoop some rice/grains into each, then pile on the roasted sweet potatoes and broccoli. Coat lightly with sesame-miso dressing and finish with toasted sesame seed duo. Serve with extra dressing on the side.
+----------
+ 1. Heat oven to 400 degrees. Place rice or grain and cooking liquid in a rice cooker or on the stove. Cook according to package directions.
+ 2. Peel sweet potatoes and cut into 1-inch cubes. Cut tops off broccoli and separate into bite-sized florets. If your broccoli stems feel especially woody, I like to peel them (with the same vegetable peeler), then cut them into 1/2- to 1-inch segments.
+ 3. Coat one large or two smaller trays with a thin slick of olive oil. Layer sweet potatoes on tray(s) and sprinkle with salt and pepper. Roast for 20 minutes, until browning underneath. Flip and toss chunks around, then add broccoli to the tray(s), season again with salt and pepper, and roast for another 10 to 20 minutes, until broccoli is lightly charred at edges and sweet potato is fully bronzed and tender. Toss chunks around one more time if it looks like they’re cooking unevenly.
+ 4. In a small skillet, toast black and white sesame seeds until fragrant. (You can do this in the oven if using an oven-proof skillet.) Let cool.
+ 5. While vegetables roast, prepare sesame-miso dressing: Combine everything in a blender and run until smooth, scraping down sides once. Taste and adjust ingredients if needed, but try to resist adding more honey if it tastes salty, as that extra pop of saltiness is exactly what I think sweet potato needs.
+ 6. Assemble bowls: Scoop some rice/grains into each, then pile on the roasted sweet potatoes and broccoli. Coat lightly with sesame-miso dressing and finish with toasted sesame seed duo. Serve with extra dressing on the side.
 
-Note: from http://smittenkitchen.com/blog/2013/10/miso-sweet-potato-and-broccoli-bowl/
+Originally from
+  http://smittenkitchen.com/blog/2013/10/miso-sweet-potato-and-broccoli-bowl/
