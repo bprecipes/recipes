@@ -1,14 +1,19 @@
-Ingredients
+Porcini crusted tofu with shallot gravy
+=========
 
+Ingredients
+-----------
 * 14 oz extra firm tofu, pressed
 
-For the marinade
+Forthe marinade
+-----------
 * 3 tablespoons tamari (or soy sauce)
 * 1 1/4 cups veggie broth
 * 1/4 cup red wine vinegar
 * 1 tablespoon olive oil
 
-For The Crust:
+For The Crust
+-----------
 * 1 oz dried porcini mushrooms
 * 1/4 cup fine bread crumbs
 * Pinch each tarragon, rosemary, thyme crushed with your fingers
@@ -16,7 +21,8 @@ For The Crust:
 * Several dashes fresh black pepper
 * 1 clove garlic, finely minced
 
-For the Shallot Gravy:
+For the Shallot Gravy
+-----------
 * 2 tablespoons olive oil
 * 2 cloves garlic, minced
 * 2 cups shallot, thinly sliced
@@ -25,6 +31,7 @@ For the Shallot Gravy:
 * 1/4 cup of the tofu marinade
 
 Directions
+-----------
  1. Slice the tofu into 8 even slices widthwise. Slice each of those diagonally corner to corner so that you have long triangles.
  2. Mix together marinade ingredients in a large bowl and marinate the tofu for at least an hour and up to 8 hours, turning when you can.
  3. When tofu is ready, prepare the crusting mixture. In a blender, pulse the porcinis until they’re powdery. Now toss them in a wide bowl along with the breadcrumbs, herbs, salt, pepper and garlic. Reserve 1/4 cup of the mixture to use in the sauce.
