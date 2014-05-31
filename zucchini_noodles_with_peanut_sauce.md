@@ -1,4 +1,8 @@
-For the dressing:
+Zucchini Noodles With Peanut Sauce
+=======
+
+For the dressing
+----------------
  * 1/2 cup natural peanut butter
  * 1/2 cup water
  * 1/4 teaspoon salt
@@ -9,6 +13,7 @@ For the dressing:
  * 1 tablespoon tamari or soy sauce
 
 For the salad:
+----------------
  * 1 1/2 lbs zucchini
  * 1 lb cherry or grape tomatoes, sliced in half
  * 1/2 lb cucumber, sliced into half moons (about 1 1/2 cups)
@@ -17,6 +22,7 @@ For the salad:
  * 1 cup fresh herbs, such as: Thai basil, mint, cilantro (or a mix of all three), chopped
 
 Directions:
+----------------
  1. Make the dressing: Place all ingredients in a small blender and blend until smooth. That’s it! Keep sealed and refrigerated until ready to use.
  2. Make the salad: Slice the zucchini lengthwise, on a mandolin or by hand, into 1/8 inch thick slices. Stack those slices and cut them lenghtwise into long noodley strips. (Or see note above about ribbon noodles.)
  3. Toss the noodles with the dressing, reserving some of the dressing for drizzling. Taste for salt.
