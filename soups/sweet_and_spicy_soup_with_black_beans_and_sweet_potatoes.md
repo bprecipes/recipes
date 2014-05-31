@@ -1,5 +1,8 @@
-Ingredients
+Sweet and spciy soup with black beans and sweet potatos
+===========
 
+Ingredients
+----------
  * 1/2 red bell pepper
  * 1 tablespoon olive oil
  * 1 onion, chopped
@@ -32,21 +35,9 @@ Ingredients
  * 2 tablespoons chopped fresh parsley
 
 Directions
-
- Set oven to broil. Brush red bell pepper lightly with olive oil, and place
- cut-side down on a baking sheet. Place sheet under broiler, and broil until
- pepper is blackened and blistered. Remove from broiler, and when cool enough to
- touch, peel skin. Chop pepper into bite-size pieces.
-
- Heat olive oil in a large skillet over medium heat. Stir in onion, celery,
- and garlic; cook until onion is soft and translucent.
-
- Mix in water, vegetable broth, tomatoes, black-eyed peas, sweet potatoes,
- and chopped bell pepper. Add brown sugar, cinnamon, cayenne, and red pepper
- flakes. Add bay leaf, thyme, basil, oregano, and rosemary. Mix in garlic,
- onion, and mustard powders. Stir in cumin and coriander.
-
- Bring contents to a boil. Reduce heat to medium-low; simmer, covered, until
- sweet potatoes begin to disintegrate, about 20 minutes. Season with salt and
- cracked pepper to taste. Stir in fresh parsley, and serve.
+----------
+ 1. Set oven to broil. Brush red bell pepper lightly with olive oil, and place cut-side down on a baking sheet. Place sheet under broiler, and broil until pepper is blackened and blistered. Remove from broiler, and when cool enough to touch, peel skin. Chop pepper into bite-size pieces.
+ 2. Heat olive oil in a large skillet over medium heat. Stir in onion, celery, and garlic; cook until onion is soft and translucent.
+ 3. Mix in water, vegetable broth, tomatoes, black-eyed peas, sweet potatoes, and chopped bell pepper. Add brown sugar, cinnamon, cayenne, and red pepper flakes. Add bay leaf, thyme, basil, oregano, and rosemary. Mix in garlic, onion, and mustard powders. Stir in cumin and coriander.
+ 4. Bring contents to a boil. Reduce heat to medium-low; simmer, covered, until sweet potatoes begin to disintegrate, about 20 minutes. Season with salt and cracked pepper to taste. Stir in fresh parsley, and serve.
 

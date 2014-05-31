@@ -1,5 +1,8 @@
-Ingredients
+Calypso black bean soup
+=========
 
+Ingredients
+-----------
  * 1 tablespoon olive oil
  * 1 sweet onion, minced
  * 1 clove garlic, minced
@@ -16,13 +19,10 @@ Ingredients
  * 1/2 cup sour cream, for garnish
 
 Directions
-
-    Place the olive oil in a deep, heavy pot, and heat over medium-high heat. Stir
-in the onion, garlic, and 1 red pepper; cook until onion is transparent, about
-5 minutes. Stir in the black beans. Add the mango, banana, cumin, ginger, and
-hot pepper sauce; stir and cook until fruit softens. Pour in the coconut milk
-and vegetable broth. Bring soup mixture to a boil over high heat. Reduce heat
-to low, and simmer until liquid reduces, about 1 hour. Season to taste with
-salt and pepper.
-
-    Blend or leave as is
+-----------
+ 1. Place the olive oil in a deep, heavy pot, and heat over medium-high heat. Stir in the onion, garlic, and 1 red pepper.
+ 2. Cook until onion is transparent, about 5 minutes.
+ 3. Stir in the black beans. Add the mango, banana, cumin, ginger, and hot pepper sauce; stir and cook until fruit softens.
+ 4. Pour in the coconut milk and vegetable broth. Bring soup mixture to a boil over high heat. Reduce heat to low, and simmer until liquid reduces, about 1 hour.
+ 5. Season to taste with salt and pepper.
+ 6. Blend or leave as is

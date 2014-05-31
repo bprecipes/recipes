@@ -1,4 +1,8 @@
-Ingredients:
+Coconut red lentil soup
+========
+
+Ingredients
+---------
  * 1 cup / 7 oz / 200g yellow split peas
  * 1 cup 7 oz / 200g red split lentils (masoor dal)
  * 7 cups / 1.6 liters water
@@ -15,15 +19,15 @@ Ingredients:
  * cooked brown rice or farro, for serving (optional)
 
 Directions:
- # Rinse the split peas and lentils until they no longer put off murky water. Place them in an extra-large soup pot, cover with the water, and bring to a boil. 
- # Reduce heat to a simmer and add the carrot and 1/4 of the ginger. Cover and simmer for about 30 minutes, or until the split peas are soft.
+---------
+ 1. Rinse the split peas and lentils until they no longer put off murky water. Place them in an extra-large soup pot, cover with the water, and bring to a boil.
+ 2. Reduce heat to a simmer and add the carrot and 1/4 of the ginger. Cover and simmer for about 30 minutes, or until the split peas are soft.
+ 3. In the meantime, in a small dry skillet or saucepan over low heat, toast the curry powder until it is quite fragrant. Be careful not to burn. Set aside.
+ 4. Place the butter in a pan over medium heat, add half of the green onions, the remaining ginger, and raisins.
+ 5. Saute for two minutes stirring constantly, then add the tomato paste and saute for another minute or two more.
+ 6. Add the toasted curry powder to the tomato paste mixture, mix well, and then add this to the simmering soup along with the coconut milk and salt.
+ 7. Simmer, uncovered, for 20 minutes or so. The texture should thicken up.
+ 8. Serve with cilantro green onion over rice
 
- # In the meantime, in a small dry skillet or saucepan over low heat, toast the curry powder until it is quite fragrant. Be careful not to burn. Set aside. 
- # Place the butter in a pan over medium heat, add half of the green onions, the remaining ginger, and raisins. 
- # Saute for two minutes stirring constantly, then add the tomato paste and saute for another minute or two more.
-
- # Add the toasted curry powder to the tomato paste mixture, mix well, and then add this to the simmering soup along with the coconut milk and salt. 
- # Simmer, uncovered, for 20 minutes or so. The texture should thicken up.
-
-Serve with cilantro green onion over rice
-from: http://www.101cookbooks.com/archives/coconut-red-lentil-soup-recipe.html
+Originally from
+  http://www.101cookbooks.com/archives/coconut-red-lentil-soup-recipe.html
