@@ -1,4 +1,8 @@
-Ingredients:
+Shakshuka
+============
+
+Ingredients
+-----------
  * a good glug of olive oil
  * 1 small onion, chopped
  * 2 jalapeño peppers, seeded and finely chopped
@@ -11,13 +15,16 @@ Ingredients:
  * 4-6 eggs
  * 1/2 cup crumbled feta
 
-Directions:
- # In a large, heavy skillet or shallow pot, heat a generous drizzle of oil and saute the onion and jalapeños for a few minutes, until soft. 
- # Add the garlic, paprika, chili powder and cumin and cook, stirring, for another minute or two. 
- # Add the tomatoes, season with salt and pepper and cook, breaking the tomatoes up with a spoon, until the mixture simmers and thickens.
- # Let the mixture thicken, make 4-8 little dents with a spoon in the surface of the sauce and crack an egg into each. 
- # Cover the pot and simmer until the egg whites are opaque but the yolks are still soft
+Directions
+-----------
+ 1. In a large, heavy skillet or shallow pot, heat a generous drizzle of oil and saute the onion and jalapeños for a few minutes, until soft. 
+ 2. Add the garlic, paprika, chili powder and cumin and cook, stirring, for another minute or two. 
+ 3. Add the tomatoes, season with salt and pepper and cook, breaking the tomatoes up with a spoon, until the mixture simmers and thickens.
+ 4. Let the mixture thicken, make 4-8 little dents with a spoon in the surface of the sauce and crack an egg into each. 
+ 5. Cover the pot and simmer until the egg whites are opaque but the yolks are still soft
 
 Notes:
  * Serve hot, with good soft bread or toast. Serves 4-6.
- * originally from:http://dinnerwithjulie.com/2013/01/04/shakshuka/
+
+Originally from
+  http://dinnerwithjulie.com/2013/01/04/shakshuka/
