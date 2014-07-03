@@ -30,3 +30,6 @@ Directions
 3. Smash the lemongrass with the back of a knife and mince it well. In a large mixing bowl, combine the lemongrass, chile paste, lime juice, vinegar, ginger, pinch of salt and stir to mix. Add the tofu and stir everything to coat. Set aside to marinate for 30 minutes.
 4. Warm the coconut and sesame oils in a large skillet over medium high heat. When the pan is hot, add the tofu and it's marinade and saute for 4-5 minutes, until edges are browned. Add the broccoli, carrots, coconut milk, remaining Tbsp. sesame oil and soy sauce and saute until the vegetables are warmed through. About 3 more minutes. Add the greens onions, stir and taste for seasonings.
 5. Serve each bowl with a scoop of the brown rice, the tofu vegetable mixture in sauce, a sprinkle of sesame seeds and a half of avocado, sliced, on top. 
+
+Originally from:
+  http://www.sproutedkitchen.com/home/2014/4/9/lemongrass-tofu-bowls.htmlhttp://www.sproutedkitchen.com/home/2014/4/9/lemongrass-tofu-bowls.html
