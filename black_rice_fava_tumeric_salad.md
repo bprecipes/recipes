@@ -23,13 +23,11 @@ Salad ingredients
 ----------
 
 * 2 cups cooked black rice (1 cup dry)
-
-* i½ cup shelled fava beans or canned 
+* 1/2 cup shelled fava beans or canned 
 * 2 red radishes, sliced
 * 2 small watermelon radishes, peeled and thinly sliced
 * 1 medium carrots, diagonally sliced
-* ½ cup shelled peas
-
+* 1/2 cup shelled peas
 * Handful chopped parsley
 * 2 tablespoons chopped chives, plus more to garnish
 
