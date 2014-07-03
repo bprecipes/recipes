@@ -1,4 +1,4 @@
-Spicy BBQ Chickpea and Crispy Polenta Bowls with Asparagus + Ranch Hummus.
+Spicy BBQ Chickpea and Crispy Polenta Bowls with Asparagus & Ranch Hummus
 =========
 
 This meal has a lot of prep but it is filled with many great flavors
@@ -45,3 +45,6 @@ Directions
 5. Heat a medium sized skillet over medium heat. Add 1 tablespoon olive oil and the polenta slices. Let them sit undisturbed for 5 minutes. Flip and sear another 5, or until lightly crisped and golden on both sides. Remove and keep warm.
 6. To the skillet add the chickpea mixture and cook for about 5-10 minutes or until the BBQ sauce has a thick + sticky coating over the chickpeas. Remove from the heat and stir in one more tablespoon of the BBQ sauce.
 7. To assemble place some arugula in the bottom of you bowls. Add the warm + crispy polenta rounds. asparagus, tomatoes, warm BBQ chickpeas and avocado slices. Add a dollop of the Ranch Hummus and sprinkle the cheddar cheese or parmesan cheese on top. Serve with the remaining BBQ sauce. 
+
+Originally from:
+  http://www.halfbakedharvest.com/spicy-bbq-chickpea-crispy-polenta-bowls-asparagus-ranch-hummus/
