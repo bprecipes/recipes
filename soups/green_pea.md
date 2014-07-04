@@ -27,3 +27,6 @@ Directions
  6. Remove from heat, fish out the bay leaves, add the salt, and puree well with a hand blender. 
  7. Taste, and add more salt if needed. 
  8. Serve hot topped with a bit of lemon juice, a pinch of cumin, mint leaves, and pan-fried paneer or cheese.
+
+Originally from:
+ http://www.101cookbooks.com/archives/green-pea-soup-recipe.html
