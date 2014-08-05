@@ -37,7 +37,7 @@ Directions
 -----------
 1. Place 8 wooden skewers in water and let soak for at least an hour.
 2. Remove halloumi from package and drain of any excess water. Cut halloumi into ideally 24 cubes (I started with 12 cubes and cut each in half). Lightly toss with ½ tablespoon olive oil and black pepper, set aside.
-3. Cut vegetables into pieces roughly the same size at the halloumi. Place in a bowl and toss with olive oil, smoked paprika, and garlic powder. Let mixture sit* while lighting the grill.
+3. Cut vegetables into pieces roughly the same size at the halloumi. Place in a bowl and toss with olive oil, smoked paprika, and garlic powder. Let mixture sit while lighting the grill.
 4. Once grill is hot and ready, thread a mixture of vegetables and halloumi onto the skewers. The mixture is messing, so wearing gloves is suggested (unless you're like me and don't mind.) Be careful with the halloumi as it can break easily. I found the best way to thread it onto the skewer is slowly and gently.
 5. Preheat grill to medium-low (if applicable.)
 6. Place skewers on clean grill grate and cook, rotating occasionally, until cheese and vegetables are charred. Remove from heat and let slightly cool.
