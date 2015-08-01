@@ -56,3 +56,7 @@ Making the palak curry
 1. Stir gently and simmer on a low flame till the paneer cubes become soft and succulent. about 1 to 2 minutes.
 1. Add cream. Stir gently again so that the cream gets incorporated in the palak paneer gravy uniformly. switch off the flame.
 1. Stir and serve the palak paneer hot with some rotis, naan or jeera rice. 
+
+Notes:
+Simple but good / traditional
+Originally from: http://www.vegrecipesofindia.com/palak-paneer/
