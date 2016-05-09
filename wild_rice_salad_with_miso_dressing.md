@@ -25,7 +25,7 @@ Miso Dressing
 Directions
 -------- 
  1. Drain and pat dry tofy. Cut it into a 1/2 inch dice. Heat the coconut oil over medium high heat. Add the tofu and saute for about five minutes. Sprinkle the soy sauce and a few grinds of fresh pepper over the top and saute another few minutes until the edges are browned. Turn off heat and set aside.
- 1. Whisk all of the dressing ingredients together (Don't be tempted to add salt, miso is pretty salty).
+ 1. Whisk all of the dressing ingredients together.
  1. In a large bowl, combine the rice, tofu, sliced carrots, edamame. Toss everything with the dressing. Add the sesame seeds and cilantro and give it another toss. Serve room temperature or chilled.
  
  Originally from: http://www.sproutedkitchen.com/home/2012/1/18/wild-rice-salad-with-miso-dressing.html
