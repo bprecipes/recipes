@@ -8,11 +8,11 @@ Ingredients
  * 1 tsp minced ginger
  * 1/2 cup (64 g) diced carrots
  * 3 Tbsp (60 g) red curry paste
- * 1 6-ounce (170 g) can tomato paste
+ * 1 6-ounce (170 g) can tomato paste (Reduce to 1 big Tbsp)
  * 2 cups (480 ml) low sodium vegetable broth
  * 1 cup (240 ml) water
  * 2/3 cup (128 g) dry red lentils, thoroughly rinsed in cold water + drained
- * 1-2 Tbsp (12-24 g) coconut sugar (or maple syrup)
+ * 1-2 Tbsp (12-24 g) coconut sugar (or maple syrup, I ommit alltogether)
  * 1/2 tsp ground turmeric, plus more to taste
  * optional: 1/3 cup (80 ml) light coconut milk
 
