@@ -2,15 +2,15 @@
 
 ## Ingredients
 
-100%, High-gluten flour - 390.06 g
-63%, Water - 245.74 g
-2%, Sugar - 7.80 g
-1%, Oil - 3.89 g
-1.75%, Salt - 6.83 g
-0.40%, Instant or active dry yeast - 1.56 g
+ - 100%, High-gluten flour - 390.06 g
+ - 63%, Water - 245.74 g
+ - 2%, Sugar - 7.80 g
+ - 1%, Oil - 3.89 g
+ - 1.75%, Salt - 6.83 g
+ - 0.40%, Instant or active dry yeast - 1.56 g
 
 Produces two pizzas with finished dough weight = 327.95 g
-Weights above are scalled for two 12inch aluminum pan pizzas.
+Weights above are scaled for two 12inch aluminum pan pizzas.
 
 ## Directions
  - Dissolve sugar in warmed water at 100f.
