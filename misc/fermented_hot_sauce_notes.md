@@ -14,6 +14,14 @@
  - Since the airlock will prevent spoilage, it makes sense to only process jars as you depleat your supply. Jars are likely stable for a year according to others. The airlock will still need to be monitored to ensure the airlock fluid does not evaporate.
  - Some suggest using half brine and half vinegar during the final prepartion to ensure shelf safety after the airlock has been removed.
  
+ # Ingredients
+  - 1 or more pounds of hot peppers, such as jalapenos (I prefer at least half to be ripened to red)
+  - Pickling salt
+  - White vinegar
+  - Rice or another vinegar (later)
+  - Cleaned 16oz jars, modified to accept airlocks.
+  - Airlocks
+ 
 ## Directions - preperation for fermentation
  - Pick and rinse peppers gently. Remove stem and seeds from peppers and cut out any problematic areas
  - Process peppers in batches to a fine dice, intermixing peppers from different plants to acocunt for differences in heat
