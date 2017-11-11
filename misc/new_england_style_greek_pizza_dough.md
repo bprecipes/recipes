@@ -27,3 +27,6 @@ Weights above are scaled for two 12inch aluminum pan pizzas.
  - At room temperature, stretch dough into lightly oiled pan, allow to rise in pan for an hour
  - Deflate any large bubbles and top and cook at 475-500. 
  - Inspect bottom of pizza and finish on stovetop, moving constantly, if needed.
+
+## Notes
+ - Adjusted from https://www.pizzamaking.com/forum/index.php?topic=691.20
