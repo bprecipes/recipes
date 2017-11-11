@@ -9,7 +9,7 @@
  - 1.75%, Salt - 6.83 g
  - 0.40%, Instant or active dry yeast - 1.56 g
 
-Produces two pizzas with finished dough weight = 327.95 g
+Produces two pizzas with finished dough weight = 327.95 g.
 Weights above are scaled for two 12inch aluminum pan pizzas.
 
 ## Directions
@@ -22,8 +22,8 @@ Weights above are scaled for two 12inch aluminum pan pizzas.
  - Divide and kneed by hand to shape, move to oilled container and ensure dough is covered in oil
  - Cover with plastic wrap (I allow it to touch the surface to avoid drying out)
  - Let rest for one hour or more to double, gently punch down and replace plastic wrap
- - Move to fridge until ~3 hours before cooking
- - 3 hours before cooking (adjusting for temperature), allow dough to come up to room temp.
+ - Move to fridge for 1-48 hours, until ~3 hours before cooking
+ - Approx 3 hours before cooking (adjusting for temperature), allow dough to come up to room temp.
  - At room temperature, stretch dough into lightly oiled pan, allow to rise in pan for an hour
  - Deflate any large bubbles and top and cook at 475-500. 
  - Inspect bottom of pizza and finish on stovetop, moving constantly, if needed.
