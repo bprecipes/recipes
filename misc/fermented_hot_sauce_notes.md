@@ -29,9 +29,10 @@
  - Pack containers with peppers to marked line (see above notes).
  - Top off with  water to bring containers up to 400g
  - Sprinkle the surface with an additional 1/4tsp of salt
- - Install airlock, filled with vodka and place out of direct light. Monitor fermentation. Peppers can likely be processed as soon as airlock activity ceases over the course of a day (or remove to darker area for longer term storage). 
+ - Clean rim and install airlock, filled with vodka and place out of direct light. Monitor fermentation. Peppers can likely be processed as soon as airlock activity ceases over the course of a day (or remove to darker area for longer term storage). 
 
 ## Directions - finishing
+ - Wipe down rim to remove any dust
  - Remove airlock and inspect peppers
  - Seperate peppers from brine using a fine strainer.
  - Empty peppers into blender and blend, adding half brine, half vinegar until the desired consistency is reached.
