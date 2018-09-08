@@ -18,6 +18,7 @@ Ingredients
 Addons
 -----------
  * 1 pound boneless chicken, very thinly sliced, to poach in broth
+ * tortillas cut into strips and baked crisp
  * quick pickled red onions
  * cilantro
  * queso fresco
