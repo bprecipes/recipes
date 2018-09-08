@@ -12,5 +12,5 @@ Directions
 Notes:
  * 
 
-Originally from
+Originally from:
   
