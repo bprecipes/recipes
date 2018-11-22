@@ -3,19 +3,19 @@ Caramelized Onion & Tomato Risotto
 
 Ingredients
 -----------
- * tablespoon plus 1 teaspoon olive oil, divided
- * pound yellow onions thinly sliced
- * teaspoon organic granulated sugar
- * .5 pounds on the vine tomatoes halved (decreased from original 2)
- * garlic cloves, minced
- * cup dry white wine
- * tablespoons tomato paste
- * tablespoons fresh thyme leaves (or 2 teaspoons dried)
- * 1/2 cups Arborio rice
- * -4 cups vegetable broth, warmed
- * /2 cup full-fat coconut milk
- * to taste
- * /2 teaspoon black pepper, or to taste
+ * 1 tablespoon plus 1 teaspoon olive oil, divided
+ * 1 pound yellow onions thinly sliced
+ * 1 teaspoon organic granulated sugar
+ * 1/2 pounds on the vine tomatoes halved (decreased from original 2)
+ * 3 garlic cloves, minced
+ * 1 cup dry white wine
+ * 1 tablespoons tomato paste
+ * 1 tablespoons fresh thyme leaves (or 2 teaspoons dried)
+ * 1 1/2 cups Arborio rice
+ * 3-4 cups vegetable broth, warmed
+ * 1/2 cup full-fat coconut milk
+ * salt to taste
+ * 1/2 teaspoon black pepper, or to taste
 
 Directions
 -----------
