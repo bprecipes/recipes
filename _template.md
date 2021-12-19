@@ -1,16 +1,13 @@
-
-============
+Title
+=========
 
 Ingredients
 -----------
- * 
+ * ingredient 1
 
 Directions
------------
- 1. 
-
-Notes:
- * 
+---------
+ 0. Step
 
 Originally from:
-  
+  link
