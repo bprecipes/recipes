@@ -26,6 +26,17 @@ Spices
  * 1/8 tsp. cinnamon
  * cayenne (to taste)
 
+Sweet n’ Spicy Mint Chutney
+-----------
+2 cups firmly packed mint leaves (no stems)
+1 clove garlic
+1 tsp. minced ginger
+2 Medjool dates
+1 fresh serrano chili (or cayenne pepper to taste)
+¼ cup freshly squeezed lime juice
+2 Tbsp. cold-pressed olive oil
+salt to taste
+
 Directions
 ---------
  1. In a dry skillet over medium heat, toast cashews until lightly golden. Remove from heat, roughly chop, and set aside. In the same skillet lightly toast coconut until golden. Remove from heat and set aside.
@@ -33,7 +44,11 @@ Directions
  3. Heat a knob of oil in a frying pan. Add the cumin and mustard seeds. When the mustard seeds begin to “pop” add the onion and the remaining spices and minced ginger. Cook five minutes, then add the garlic. Cook a couple minutes, then add carrots. Stir to coat with spices, cook five minutes, add peas and chickpeas. Remove from heat and stir in spinach, coconut and cashews.
  4. Pour a couple inches or water into a large flat-bottomed bowl or shallow dish. One at a time, place a rice paper wrap in the water and let soften, just until it becomes pliable (this step is important! Do not let the paper become completely soggy or the rice paper will split while baking. There should still be some pattern visible on the surface). Remove from water and place rice paper on a clean, flat surface. Using a very sharp knife or a pizza cutter, slice the rice paper circle in half. On both halves, place a generous scoop of the filling. Fold the bottom corner about a third of the way up the round side of the half (see photo), followed by the top corner to meet the base of the fold you just made, creating a triangle. Fold the round edge up onto the top of the package to seal it, and flip it over. This is now the top of the samosa. Repeat steps with the remaining rice paper and filling.
  5. Melt about a tablespoon of ghee or coconut oil in a small saucepan. Lightly brush the tops of the samosas with a tiny bit of oil (this will create a nice crisp crust). Sprinkle with coconut if desired.
- 6. Place samosas in a 400°F / 200°C oven for 10 minutes. Remove from oven and flip over to crisp on the other side. Bake for another 10 minutes until lightly browned and crisp. Remove from oven and serve hot with the Sweet n’ Spicy Mint Chutney.
+ 6. Place samosas in a 400°F / 200°C oven for 10 minutes. Remove from oven and flip over to crisp on the other side. Bake for another 10 minutes until lightly browned and crisp. 
+
+ 1. Wash mint leaves well to remove nay dirt. Spin dry.
+ 2. In a food processor pulse garlic, ginger, and chili to finely mince. Add dates, mint leaves, lime juice and olive oil. Blend on high until smooth and creamy. Add salt to taste. Add more olive oil to thin, if necessary.
+ 3. Serve immediately. Store leftovers in a tightly sealed glass container in the fridge for four days.
 
 Originally from:
   https://www.mynewroots.org/site/2013/05/fully-loaded-spring-samosas/
