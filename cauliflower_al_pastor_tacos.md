@@ -7,14 +7,14 @@ Ingredients
  * tablespoons chili powder
  * teaspoons paprika
  * chipotle peppers adobo
- * /2 cup pineapple juice
- * /4 cup white vinegar
- * cups fresh pineapple chunks divided
- * tablespoons olive oil
+ * 1/2 cup pineapple juice
+ * 1/4 cup white vinegar
+ * 2 cups fresh pineapple chunks divided
+ * 2 tablespoons olive oil
  * head cauliflower cut into florets
- * /2 of a sweet onion thinly sliced
+ * 1/2 of a sweet onion thinly sliced
  * jalapeno seeded + diced
- * /2 cup fresh cilantro chopped + more for serving
+ * 1/2 cup fresh cilantro chopped + more for serving
  * toasted corn or flour tortillas
  * queso fresco
  * wedges for serving
