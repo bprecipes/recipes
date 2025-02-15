@@ -3,10 +3,10 @@ Cauliflower Al Pastor Tacos
 
 Ingredients
 -----------
- * cloves garlic minced or grated
- * tablespoons chili powder
- * teaspoons paprika
- * chipotle peppers adobo
+ * 2 cloves garlic minced or grated
+ * 2 tablespoons chili powder
+ * 2 teaspoons paprika
+ * 2 chipotle peppers adobo
  * 1/2 cup pineapple juice
  * 1/4 cup white vinegar
  * 2 cups fresh pineapple chunks divided
