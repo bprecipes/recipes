@@ -15,12 +15,12 @@ Saag Paneer
 
 Spice Mixture
 -----------
-2 tablespoons cumin seed
-1 tablespoons coriander seed
-2 teaspoons mustard seed
-1 teaspoon red pepper flakes
-1/8 teaspoon cardamom seeds
-3 whole cloves
+* 2 tablespoons cumin seed
+* 1 tablespoons coriander seed
+* 2 teaspoons mustard seed
+* 1 teaspoon red pepper flakes
+* 1/8 teaspoon cardamom seeds
+* 3 whole cloves
 
 Directions
 ---------
