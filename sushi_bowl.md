@@ -3,7 +3,7 @@ Sushi Bowl
 
 Ingredients
 -----------
- * 3 cups cooked brown or white rice
+ * 3 cups cooked sushi rice
  * 2 tablespoons rice vinegar
  * 1 tablespoon cane sugar
  * 1 teaspoon sea salt
