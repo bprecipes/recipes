@@ -41,8 +41,8 @@ Sauce
 
 Directions
 -----------
- * Combine onion, garlic and ginger in a blender; blend until pureed, adding about 2 tablespoons water to make blending possible.
- * Heat a skillet over high heat. Add the oil. When the oil is hot, add the cumin seeds and fry a few seconds. Add the blended onion mixture and the serrano chile and fry well, stirring, until the mixture thickens and dries out but is not browned, about 10 minutes.
+ * Combine onion, garlic, ginger, and garlic in a food processor; blend until pureed.
+ * Heat a skillet over high heat. Add the oil. When the oil is hot, add the cumin seeds and fry a few seconds. Add the blended onion mixture and fry well, stirring, until the mixture thickens and dries out but is not browned, about 10 minutes.
  * Puree the tomatoes in the blender and add to the skillet. Rinse out the blender with 1/3 cup water and add to the skillet. Cook 10 minutes.
  * Add the salt, chile powder, coriander, garam masala and turmeric. Let this cook at a boil until it deepens in color and the oil rises to the surface, about 10 minutes. Add the cream and 1/3 cup water. Add the raisins and cashews. Rub the methi leaves between the palms of your hands to crush, then add to the skillet. Taste for seasoning. Cook another 5 minutes. Add the Kofta; simmer 5 minutes. Thin with water or more cream, if needed.
   
