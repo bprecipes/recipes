@@ -25,7 +25,7 @@ Sauce
  * 2 tablespoons finely chopped garlic
  * 1 1/2 tablespoons finely chopped ginger root
  * Water
- * 1/4 cup oil
+ * 1/4 cup ghee or oil
  * 3/4 teaspoon cumin seeds
  * 1 teaspoon finely chopped serrano chile (I used a dried thai chilli)
  * 2 1/2 large tomatoes
