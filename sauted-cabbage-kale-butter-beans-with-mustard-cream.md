@@ -11,13 +11,13 @@ Ingredients
  * 1/2 teaspoon Tamari
  * sea salt and ground black pepper, to taste
  * 1 1/2 tablespoons olive oil
- * 1 medium shallot, halved & thinly sliced ((about 1/2 cup sliced shallot))
+ * 1 medium shallot, halved & thinly sliced (about 1/2 cup sliced shallot)
  * 3 cloves garlic, minced
  * 1 teaspoon dried thyme
- * 1/2 medium green cabbage, cored & chopped ((about 600 grams))
+ * 1/2 medium green cabbage, cored & chopped (about 600 grams)
  * 1 teaspoon apple cider vinegar
  * 3 cups chopped kale, packed
- * 1 1/2 cups cooked butter beans, drained & rinsed ((from one 15.5oz/458 ml can))
+ * 1 1/2 cups cooked butter beans, drained & rinsed (from one 15.5oz/458 ml can)
  * 1/4 cup toasted almond slices, roughly chopped
 
 Directions
